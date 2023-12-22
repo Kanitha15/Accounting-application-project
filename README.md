@@ -1,0 +1,6 @@
+![image](https://github.com/Kanitha15/Accounting-application-project/assets/153354812/134674a0-821a-4100-aeb5-753846b0973a)
+![image](https://github.com/Kanitha15/Accounting-application-project/assets/153354812/b32ab93b-6a18-4aa8-9d9d-bfc4ffd3e094)
+![image](https://github.com/Kanitha15/Accounting-application-project/assets/153354812/1c86e22c-defc-4088-ad3e-5bd39e367920)
+![image](https://github.com/Kanitha15/Accounting-application-project/assets/153354812/fd333219-2769-4919-b50c-b68336f44818)
+![image](https://github.com/Kanitha15/Accounting-application-project/assets/153354812/1d3c8bf7-00aa-407d-9944-9d95260a51b2)
+![image](https://github.com/Kanitha15/Accounting-application-project/assets/153354812/c24e2196-2494-47a9-858e-839e18d92266)
